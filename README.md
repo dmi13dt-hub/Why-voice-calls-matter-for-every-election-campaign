@@ -1,0 +1,2 @@
+# Why-voice-calls-matter-for-every-election-campaign
+Near polling day, choose a voice calling company with easy database uploads, effective call distribution and efficient customer care. Sendgun offers a cloud-based system to design, send and analyse calls without technical skills. Teams can record friendly messages and get peak-time support. Contact: sales@sendgun.in | 1800 8898 103 | www.sendgun.in
